@@ -1,1 +1,1 @@
-# lor
+# Loresse Duyag
